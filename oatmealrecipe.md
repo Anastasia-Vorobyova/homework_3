@@ -8,4 +8,8 @@
 
 4. half of cup of oatmeal
 
+## Process
 
+* Combine all well
+
+* put into fridge for night
