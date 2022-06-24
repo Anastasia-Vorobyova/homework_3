@@ -23,3 +23,5 @@ put into dish
 then put the cherry filling 
 
 put that beautiful pie into oven (170 C) for 45 minutes
+
+finally done!
